@@ -18,12 +18,23 @@ We're building something awesome. Stay tuned for the best global price compariso
 ---
 
 📬 For collaboration or questions: [dharshitherra@gmail.com](mailto:dharshitherra@gmail.com)
-![Screenshot (317)](https://github.com/user-attachments/assets/a6e11478-0550-484a-9380-04721d83c641)
-![Screenshot (318)](https://github.com/user-attachments/assets/60b5baf1-9236-4d01-874c-0749b8c6b996)
-![Screenshot (319)](https://github.com/user-attachments/assets/1829ef68-a212-46cc-bd1f-55353930b38a)
-![Screenshot (320)](https://github.com/user-attachments/assets/707d3313-eba3-4ab1-863f-633c30eace03)
-![Screenshot (321)](https://github.com/user-attachments/assets/a6c6dce7-1912-45ca-8963-816afdcb69a6)
-![Screenshot (322)](https://github.com/user-attachments/assets/448b9fd1-020b-4066-ba02-2436cd2b134a)
-![Screenshot (323)](https://github.com/user-attachments/assets/c1efba46-8222-4a69-a096-b50778977654)
-![Screenshot (315)](https://github.com/user-attachments/assets/ab176168-99c9-4513-8c34-f669680a092e)
-![Screenshot (316)](https://github.com/user-attachments/assets/2ba046b6-9c92-49fa-a74c-539e5c3b2763)
+
+---
+
+![Screenshot (315)](https://github.com/user-attachments/assets/9e36d203-4c1e-4dd4-ba2d-18e317e422ca)
+
+![Screenshot (316)](https://github.com/user-attachments/assets/1f14f6da-b850-4eaa-9c1e-c9543fdbf014)
+
+![Screenshot (317)](https://github.com/user-attachments/assets/171643b9-bc95-4984-a9d9-78a88f2c5b24)
+
+![Screenshot (318)](https://github.com/user-attachments/assets/d63cd7fd-6b6e-4934-a008-2e751e1ff735)
+
+![Screenshot (319)](https://github.com/user-attachments/assets/5fa8a7fc-b1d1-47cd-81fb-e80cd131c4cf)
+
+![Screenshot (320)](https://github.com/user-attachments/assets/7059d4e0-c85a-4d50-ab84-e203b7d1fa93)
+
+![Screenshot (321)](https://github.com/user-attachments/assets/537d9b85-9337-4eed-bfea-ae0fa1d40b30)
+
+![Screenshot (322)](https://github.com/user-attachments/assets/4eb69d9d-a697-4956-8425-198b83dad688)
+
+![Screenshot (323)](https://github.com/user-attachments/assets/eacbf7f1-b9d6-4ff0-a923-d08e6cd0670f)
